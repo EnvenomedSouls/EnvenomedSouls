@@ -1,4 +1,2 @@
+If you think I'm loser, GO AWAY FUCKER!!
 
-gpverfsdjoip 
-erlbkvpjdf
-bserb[j s]zb
